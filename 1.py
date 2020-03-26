@@ -1,3 +1,1 @@
-/////////////////////////
-dddddddddddddddddddddddd
-dddddddddddddddddddd
+yashar paraziti 
